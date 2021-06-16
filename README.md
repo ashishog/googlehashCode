@@ -34,6 +34,23 @@ Finals online
 Problems & Scoreboards
 Finals online
 
+2019oblems & Scoreboards
+Finals in Dublin, IE
+
+2017
+Problems & Scoreboards
+Finals in Paris, FR
+
+2016
+Problems & Scoreboards
+Finals in Paris, FR2021
+Problems & Scoreboards
+Finals online
+
+2020
+Problems & Scoreboards
+Finals online
+
 2019
 Problems & Scoreboards
 Finals in Dublin, IE
